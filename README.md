@@ -1,0 +1,1 @@
+my-adobe-flash
